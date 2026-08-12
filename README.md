@@ -2,4 +2,4 @@
 <p>WE INTERACT+TALK A LOT! WERE LOOKING FOR NEW FRIENDS.</p>
 <p>EVERYBIDY IN THE SERVER HAS A ROBLOX COSPLAY OF A HETALIA CHAR.. HEH</p>
 <h1>we want YOU for this server</h1>
-<h2>https://discord.gg/sdQZV3jcM</h2>
+<h2>https://discord.gg/W4vWG9Gc5R</h2>
